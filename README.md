@@ -1,7 +1,9 @@
 - 👋 Hi, I’m Shadi
 - 👀 I’m  almost interested in every thing *^*
 - 🌱 I’m currently learning something:)
-- 📫 How to reach me ...
+- 📫 How to reach me
+- telegram:@Shadi_m_1
+- 
 
 <!---
 Shadim09/Shadim09 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
