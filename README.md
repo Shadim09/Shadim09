@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Shadim09
+- 👋 Hi, I’m Shadi
 - 👀 I’m  almost interested in every thing *^*
 - 🌱 I’m currently learning something:)
 - 📫 How to reach me ...
