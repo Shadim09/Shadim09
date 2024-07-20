@@ -1,6 +1,8 @@
 - 👋 Hi, I’m Shadi
+- A new ML researcher \^0^/
 - 👀 I’m  almost interested in every thing *^*
 - 🌱 I’m currently learning something:)
+
 - 📫 How to reach me
 - telegram: @Shadi_m_i
 - Email:shadim1308@gmail.com
